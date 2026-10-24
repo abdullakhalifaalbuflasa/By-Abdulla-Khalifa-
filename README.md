@@ -1,4 +1,8 @@
 # By-Abdulla-Khalifa-
+
+عبـــــــدالله خلـــــــيفة
+https://abdullakhalifa.com
+
 The Bronze Age in Bahrain
 Dilmun’s Trade: A Step into the Wider World
 ✗ The Bronze Age in Bahrain
